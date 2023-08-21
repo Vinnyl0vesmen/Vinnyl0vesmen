@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Vin
+- 👀 I’m interested in coding 
+- 🌱 I’m currently learning how to cook
+- 💞️ I’m looking to collaborate on nothing as of know
